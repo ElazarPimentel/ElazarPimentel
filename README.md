@@ -1,0 +1,6 @@
+- *** Sup, I’m @ElazarPimentel
+- 🔍 I’m interested in Project Managment, artificial intelligence, literature, ham radio, and full stack development.
+- 📘 I’m currently learning to unlearn. 
+- 🤝 I’m trying to ride my bicycle more often.
+- 📧 How to reach me: elazar.pimentel@gmail.com
+- 🚀 Fun fact: I love the movide About Time and I admit it.
