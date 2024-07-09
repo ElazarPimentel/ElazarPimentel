@@ -1,4 +1,4 @@
-- *** Sup, I’m @ElazarPimentel
+- Sup, I’m @ElazarPimentel
 - 🔍 I’m interested in Project Managment, artificial intelligence, literature, ham radio, and full stack development.
 - 📘 I’m currently learning to unlearn. 
 - 🤝 I’m trying to ride my bicycle more often.
